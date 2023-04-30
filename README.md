@@ -10,7 +10,6 @@
 
 - 📫 How to reach me **omkrjha@outlook.com**
 
-- 📄 Know about my experiences [https://omkrjha.netlify.app/](https://omkrjha.netlify.app/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
